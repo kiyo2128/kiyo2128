@@ -13,4 +13,5 @@ i’m kiyo, a beginner currently taking the odin project course to become a full
 outside learning tocode 🎧
 
 i love art, kpop, movies, anime, drawing, and music, basically anything that shows my creative side.
+
 trying to blend those influences into how i see the world.
